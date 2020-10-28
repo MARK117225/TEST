@@ -1,2 +1,2 @@
 ECHO �w�ҰʡC
-hey kiss my ass
+hey kiss my dick
